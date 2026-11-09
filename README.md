@@ -1,84 +1,24 @@
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[strawpage.](https://willisdead.straw.page)ㅤㅤ[atabook.](https://bombshelled.atabook.org/)
+
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=qq0ddb23qffsi0pz9w33ytzd6&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=000000&bar_color_cover=false">
+  </a>
+</p>
+
 <div align="center">
 <details>
   <summary><b>Please Read</b></summary>
 <div align="center">
 
-My name is Will. I am a 19 year old gay man.
+My name is Will. I am a nineteen year old gay man. Those under 16 IWC.
 
-I am off-tab most times, whispering is the best way to get my attention. 
+If I'm online, I'm probably off-tab. Whisper if you'd like my attention.
 
-I may come off as cold/overly formal. Lmk if you need me to adjust my behaviour!
+I may come off as cold/awkward. Lmk if you need me to adjust my behaviour.
 
-I am a non-sharing selfshipper. Please view [I](https://hannibal.fandom.com/wiki/Hannibal_Lecter_(TV)), [II](https://twinpeaks.fandom.com/wiki/Dale_Cooper), [III](https://tardis.fandom.com/wiki/Eleventh_Doctor), & [IV](https://x-files.fandom.com/wiki/Fox_Mulder) <3
-
-I am an [ID kin](https://kindefinitions.carrd.co/#selfhood) of [Will Graham](https://hannibal.fandom.com/wiki/Will_Graham_(TV)). Doubles will be blocked.
+I am an [ID kin](https://kindefinitions.carrd.co/#selfhood) of [Will Graham](https://hannibal.fandom.com/wiki/Will_Graham_(TV)). "Doubles" will be blocked.
 </div>
 </details>
 </div>
-
-<div align="center"> Stamps to give you a glimpse into my SICK & TWISTED mind.
-
-![ezgif com-animated-gif-maker](https://64.media.tumblr.com/74b760205dbf621175e22f88aaa5d7a5/8548780ba34f81c4-ef/s100x200/c1f472627f2416dbe9702f74ca6583f095cad06a.pnj)
-![ezgif com-animated-gif-maker](https://64.media.tumblr.com/fc446b20598a1a1aafb774bea78623ca/b6c47b3c74cf0f3a-ef/s100x200/69b2451051e1875cd69e42d372607078dd7a051b.gifv)
-![ezgif com-animated-gif-maker](https://64.media.tumblr.com/d36db7ce185a0609faa5a1d4d24683eb/4d7a9e77c452ad67-af/s100x200/5e1e04108d6bb82b1ec345883a5e9a181149fcc9.pnj)
-![ezgif com-animated-gif-maker](https://64.media.tumblr.com/9d614af63d3e855a8b56454891710d86/36db2f1e911a9204-14/s100x200/0c3aaa76cda0cc037895d3e05dda43649096c477.pnj)
-![ezgif com-animated-gif-maker](https://64.media.tumblr.com/911d0a236362c621cdf29837157dc61c/65b5411d0bb580f3-21/s100x200/2cf625c679d7d02f96b639e84fe937fe3d017557.pnj)
-![ezgif com-animated-gif-maker](https://64.media.tumblr.com/4849eb00d98f63ace91d67d3688eb602/72f68783cdc5f990-1c/s100x200/f79d6e0c25c752539192264a7c4bbf70378c3255.jpg)
-![ezgif com-animated-gif-maker](https://64.media.tumblr.com/755871f02a1da42c19058e9d07eaba2e/e547308c13b0d59f-88/s100x200/342c4bb6546328c8b573e41c858f4cc6f204243a.pnj)
-![ezgif com-animated-gif-maker](https://64.media.tumblr.com/e762188b2c6b443528b99910236e2a1f/65b5411d0bb580f3-f3/s100x200/e6886b31cd326c1d4c26cb71914d3400fd0b517e.pnj)
-![ezgif com-animated-gif-maker](https://64.media.tumblr.com/c317806638c1e071b82dfd258463a57a/76066fd64ee39639-a4/s100x200/9b654d1f8436f3a4d22e0a41aeb79f35c0b31428.pnj)
-![ezgif com-animated-gif-maker](https://64.media.tumblr.com/c3050120d811db8e4e1cf539f51347cc/0a31dc5637e41a71-16/s100x200/9c65485a65e50311bddc12f763ca56f05601c2e8.pnj)
-![ezgif com-animated-gif-maker](https://64.media.tumblr.com/555b846e2f0ef8d80d569bc92a132d49/ceea3f9755103936-46/s100x200/a279a4b5cb15b6311a56a82bdae51a82cba8755b.gifv)
-![ezgif com-animated-gif-maker](https://64.media.tumblr.com/2f02446271e232c59d4ea28d966ca181/b357bd244539d389-50/s100x200/af2d60cfba1f815bf2dbb9ad669f48c30d2947d7.gifv)
-![ezgif com-animated-gif-maker](https://64.media.tumblr.com/7e6b988e67c72a6a7a0a037e23c481d2/471a0d8a0374bc0c-2e/s100x200/2d06b47068dc7d64aa924ca9a035c5717cd3cf0d.pnj)
-![ezgif com-animated-gif-maker](https://64.media.tumblr.com/09bfcc07d718e7c41d3621771271b21f/4fbac6bde9a4b220-5d/s100x200/b7da63e428e00a96ae0d43d1a604d615bf8fe1ec.pnj)
-![ezgif com-animated-gif-maker](https://64.media.tumblr.com/e4b1e485216f063da2ab28100570a5fa/664466959afa09af-aa/s100x200/a1a91adbf1efbeb15b2c9be3acf392b2ccb93771.gifv)
-![ezgif com-animated-gif-maker](https://64.media.tumblr.com/26c81e3b0120e92df8cb618578a19279/68df9d52485b8bf8-f2/s100x200/1da3057298c5e12cfa5fbf7a87cb25193effaef3.gifv)
-![ezgif com-animated-gif-maker](https://64.media.tumblr.com/f54fbe334df9c88b15e86a09a3df6f2b/3e3cdffb2aff00f9-34/s100x200/041d6bd9837cf525adb616e7b36c3bd12e05e904.pnj)
-![ezgif com-animated-gif-maker](https://64.media.tumblr.com/671ee4fffe9d53156db5c3370b3e1dd4/383f433df47b31c2-1c/s100x200/fbab162eb1440f741bfe79a46226ec0da7f6cb49.gifv)
-![ezgif com-animated-gif-maker](https://64.media.tumblr.com/2e8bf077efed3809524dca1197707679/784463045d46bb7e-dd/s100x200/69c8947224a6b6f0a37bf2998c44184c8e37b3ef.gifv)
-![ezgif com-animated-gif-maker](https://64.media.tumblr.com/36c2e30900b6b2cb05c0372231175c0a/871530da0b958386-bb/s100x200/9f00c71f2d8e0d477abc035abecbf2a2ea61808f.gifv)
-![ezgif com-animated-gif-maker](https://64.media.tumblr.com/c72676bd81ecbd07df74446166d27047/f1f26cc6edd7d39f-85/s100x200/43ce72e41c8ee23cc09c135439ffe6d62a37b374.gifv)
-![ezgif com-animated-gif-maker](https://64.media.tumblr.com/e7da9e265c5931b6d20af068b339e9ea/44dabd601d7b1086-9f/s100x200/98c8a43f2c0cedd22e7c07159606a81971fba929.gifv)
-![ezgif com-animated-gif-maker](https://64.media.tumblr.com/fdb50c175339d7152810679849ed8930/e707752d7a881bd1-9c/s100x200/b6c3134325d41cb33dc5a9b52850f6a7dff6deb9.pnj)
-![ezgif com-animated-gif-maker](https://64.media.tumblr.com/51a59a00ea2fed34f5be2762ae40702b/ad2478b8f91f4be7-d2/s100x200/e02bd9d33064bb2633bd32b5f31eaad0edad84a9.pnj)
-![ezgif com-animated-gif-maker](https://64.media.tumblr.com/2f69f9c044373864259cb630b443d8bb/8548780ba34f81c4-8a/s100x200/007f7cf225206721c0e062db1425781793fc149e.gifv)
-![ezgif com-animated-gif-maker](https://64.media.tumblr.com/7c054dc59035a22232bc175cd7972024/2892937afd63c936-83/s100x200/1d876b64cd802be77c5265e7700fbc5d2aa12350.pnj)
-![ezgif com-animated-gif-maker](https://64.media.tumblr.com/d43259f4376727f2fa34508e3ca6d7d3/4d7a9e77c452ad67-01/s100x200/9cece8b51ab6792eac9f7e89b600a4515dcb5665.pnj)
-![ezgif com-animated-gif-maker](https://64.media.tumblr.com/87c48fb4f1826079ed3c50bda96f11c0/fddcf9c041d8da0a-64/s100x200/a52a0995784a8cb439a098e9685ce167f5c88ea2.pnj)
-![ezgif com-animated-gif-maker](https://64.media.tumblr.com/d185b2788832572273b2420c8a8c113e/fddcf9c041d8da0a-8a/s100x200/b6dce00b5a0558b6f590ea6ea290d1ed183355c8.pnj)
-![ezgif com-animated-gif-maker](https://64.media.tumblr.com/a0a38d3833eff058728597b74a0dc3ff/0b69e2bdd250b3d7-0c/s250x400/2b2daeb53d6a8539ca4d8e1f9672b657ce47ba3c.gifv)
-![ezgif com-animated-gif-maker](https://64.media.tumblr.com/addf47553efe191b0767a03b09f75d1e/ee93bbaad586c317-16/s100x200/1ab09512f725ef22f4d4c9f4f27e71b24a30e8bb.pnj)
-![ezgif com-animated-gif-maker](https://64.media.tumblr.com/012fd51a04afc091be0933ac5241c118/b1ccac86add9a07a-88/s100x200/c0c9df16a7b286cae0780178635a435a4c7352f2.gifv)
-![ezgif com-animated-gif-maker](https://64.media.tumblr.com/352a4ee3de7dd5dc87bb36d092f0371b/6d38ed1e3a957ce4-7e/s100x200/bf20b52b81aa19fa6992d443f0b4d4e33ee3568f.pnj)
-![ezgif com-animated-gif-maker](https://64.media.tumblr.com/3f411505acd39b248e37c34ebe5a0e5b/bf695073ef56ba6d-1a/s100x200/984ac0c83f32fff7e8331f574f3c6849cf4cd3f1.pnj)
-![ezgif com-animated-gif-maker](https://64.media.tumblr.com/5d54cab0401feca41806b2102c05028e/23cd2d8abd55e097-47/s100x200/279a2ed25eaf5dd9f58a126c501a5222fcfbbb3d.pnj)
-![ezgif com-animated-gif-maker](https://64.media.tumblr.com/e658bea23833000e0fc07c016e2d1488/9574327874d6f544-b5/s100x200/1be1d144913a9ab043bf46ed560910a46ccf1e88.pnj)
-![ezgif com-animated-gif-maker](https://64.media.tumblr.com/9e9652f93a4f84747bea8a8872dbe15e/f8c08c604d48109d-d1/s100x200/bda7b00053012c75e111abdefa03701ff37ad0b5.pnj)
-![ezgif com-animated-gif-maker](https://64.media.tumblr.com/8dd29ddb22a170e1a6bf42c9cc167e2f/5403629769ad94e4-f7/s100x200/1be59bb6abf7c06f067c73c2fb87bd75a864da6c.pnj)
-![ezgif com-animated-gif-maker](https://64.media.tumblr.com/38484da6b7b5db63c1271e0f6631cf13/8cd3a026fae2110f-13/s100x200/4315dbd1913bcd0b48a316faa027baeb4641d372.pnj)
-![ezgif com-animated-gif-maker](https://64.media.tumblr.com/837584868f167fe4f97063dd9ec11adc/88704b92e06ff2d6-c9/s100x200/13955472d45704837dade6c1060ccab9fb18b1e7.gifv)
-![ezgif com-animated-gif-maker](https://64.media.tumblr.com/2ac93c748ca0df8ef00f511a6b28ab32/4d7a9e77c452ad67-93/s250x400/ac7f5f9deb101adeca6000ad15163b2ce42d265b.gifv)
-![ezgif com-animated-gif-maker](https://64.media.tumblr.com/9bfa437bb211fd89ca9f1919099ed05c/182546ab185c6fc1-14/s100x200/9d392d35ccef51372bdd7c655afa8f87473f17ed.pnj)
-![ezgif com-animated-gif-maker](https://64.media.tumblr.com/e49ba592ef3448d2c834ea0a0ab34c11/60a188c27a3fcc04-fe/s100x200/9b750ca58bb109fd68b0d7cc075f69180467cf04.pnj)
-![ezgif com-animated-gif-maker](https://64.media.tumblr.com/c842759b345339d4c8faed5fe3879a07/a97fc5b15ae5fd1d-77/s250x400/ecec4e31c6b64db8e536721f21cb4422c182a3f4.pnj)
-![ezgif com-animated-gif-maker](https://64.media.tumblr.com/90f0fc5a99b5d2ab2b3f196f4bbde7d1/efff778a20116a0f-51/s100x200/6390b02a43cb36c36bc1bad2c6c266def00a285a.gifv)
-![ezgif com-animated-gif-maker](https://64.media.tumblr.com/04a47361976eff655a6e6e50233b1229/afae6778fcbc3ecd-ba/s100x200/59306cc23046a1b9b26b927a25b59d654492c917.pnj)
-![ezgif com-animated-gif-maker](https://64.media.tumblr.com/e4adcf6a9886ba393c69b45f350fb8b0/40a5f2f6c73ca09f-89/s100x200/780f024f4b956267b905d279e22f50bad8922088.pnj)
-![ezgif com-animated-gif-maker](https://64.media.tumblr.com/d159e4bf2e8aa91d074c2a374d74babf/537baad7cc3ed084-5a/s100x200/91faf7b363cd74db4d7f139efe933e17246f30d6.pnj)
-![ezgif com-animated-gif-maker](https://64.media.tumblr.com/110fd038d2a53f6f7e65aaabb1628518/a9fc76ebee56f7cc-11/s100x200/a1202fe155c32a3cde84deb88653870f99a5f5b8.pnj)
-![ezgif com-animated-gif-maker](https://64.media.tumblr.com/4a719b890fb1d8691ba06a75c0a02ca1/2efa4b46ccd6c281-b7/s100x200/7ed3e3e9fe620041250fa3b9b4c8b069b06a0297.pnj)
-![ezgif com-animated-gif-maker](https://64.media.tumblr.com/be9033d0f11dddd841b62fdefa3a36c8/f582dcaeccedd8e4-38/s100x200/1deec358a6acdf5514d1d52660fed0b98f7db5a9.pnj)
-![ezgif com-animated-gif-maker](https://64.media.tumblr.com/f6aec7fc4b768bf03dd23e23cafaf01c/5a3c16594726c05d-45/s100x200/a90f701f7d1bac6c7b6f808c4ce399fe3c016398.gifv)
-![ezgif com-animated-gif-maker](https://64.media.tumblr.com/5619f3f394b208f74d6275624418d55d/c1fcc6e528f6ef83-99/s100x200/6184153d0f691cd483c6b60c323eff6a75f87ae5.pnj)
-![ezgif com-animated-gif-maker](https://64.media.tumblr.com/74d84d07ea18735a8d7c5dd917d374a6/bc6b205c0034ed05-f1/s100x200/cc8a5e26d69f8e01622e34c4e6fee8f67477e0ea.webp)
-![ezgif com-animated-gif-maker](https://64.media.tumblr.com/56b6986ad7ead6ba39573e5959b37883/a9fc76ebee56f7cc-3f/s100x200/fc52e77b9507082dd326699650172635a1ea0da4.pnj)
-![ezgif com-animated-gif-maker](https://64.media.tumblr.com/7568459ce7a34c8bc0259e5d6cb036fa/d2d57ff0d6ab88cf-c9/s100x200/56e912e9a9565bf954d8c73cc8c6582b20b319d4.gifv)
-![ezgif com-animated-gif-maker](https://64.media.tumblr.com/c54f20764989b1163d4fab5b275a9fa7/78f4f59259444b09-e5/s100x200/2e875e417f1d76292b49524825786c444ff2146c.pnj)
-![ezgif com-animated-gif-maker](https://64.media.tumblr.com/2b8929ef0220f5668b1237a18ff4e78e/b61d15448f89c655-56/s100x200/1d2667774f6bfa3d5e5a71b5f6ba02035ecc9863.pnj)
-![ezgif com-animated-gif-maker](https://64.media.tumblr.com/4ed6ba6b235c4e520e36ff66b389fa75/e3a795ea705b8b2c-11/s100x200/96e469fcd3d2ffc6596e1db2225b7176a62b631d.pnj)
-![ezgif com-animated-gif-maker](https://64.media.tumblr.com/0d092783d73926ad5049f0a6a6cad935/ceea3f9755103936-9e/s100x200/d59f22588e9c9484eb3ac0bd87f476347ae78a41.pnj)
-![ezgif com-animated-gif-maker](https://64.media.tumblr.com/6af91d918bd02419531f047562d8ab62/5d984f7644a6e006-4b/s100x200/b39579c0227d9614902bb264e55a7abd84dfcb30.pnj)
-![ezgif com-animated-gif-maker](https://64.media.tumblr.com/a34581b4b5d29cd3eb904268c4a3f68e/43cf3464b1f162d2-8d/s100x200/a346ca33709570ba2bfce24b08405dec0f797b3c.gifv)
-![ezgif com-animated-gif-maker](https://64.media.tumblr.com/531773155dfef6e31e181650de964455/48c85783625d4141-2b/s100x200/f1ad99b2721237602da2cc3693568f738c53a622.pnj)
-![ezgif com-animated-gif-maker](https://64.media.tumblr.com/9745d1dca7052f36acf117dc2a1feb22/c91f8fdcfcb75f8f-ce/s100x200/6594d95a1ec22614c7513be6c9fed7a7aba74375.gifv)
